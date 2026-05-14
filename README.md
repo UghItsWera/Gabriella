@@ -5,6 +5,8 @@
 
 The experience focuses on atmosphere, tension, and narrative-driven horror, blending environmental storytelling with VR immersion to create a deeply unsettling psychological experience.
 
+Link to the download page: https://weramichalek.itch.io/gabriella 
+
 ---
 
 ## 🎮 Gameplay Concept
